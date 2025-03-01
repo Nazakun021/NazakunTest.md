@@ -6,4 +6,8 @@ I'm Kraazy
 I love Computer Science.
 I fucking love Latinas.
 The world should suffer.
-Gwapo si Ikaw
+Gwapo si Ikaw.
+Naza
+Genesis
+Breindel
+Gwapo.
